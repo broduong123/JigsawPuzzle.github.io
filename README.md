@@ -1,1 +1,1 @@
-# JigsawPuzzle.github.io
+# JigsawPuzzle.io
